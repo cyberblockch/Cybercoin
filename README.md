@@ -1,0 +1,2 @@
+# Cybercoin
+Cybercoin
